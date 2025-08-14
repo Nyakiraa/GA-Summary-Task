@@ -8,4 +8,4 @@ SRA Retention Policy
 
 -Serious
 -main concern: higher level, lesser colors
--consequence: third year-will be blocked on major subjects
+-consequence: third year-will be blocked on major subjects.
