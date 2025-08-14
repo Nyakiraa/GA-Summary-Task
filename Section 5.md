@@ -14,3 +14,4 @@
 3. Encourage more students to join Mentoring Sessions and activities.
 4. Follow department updates on the official **Tactics Facebook page**.
 5. Strengthen collaboration between students and faculty for future projects.
+
