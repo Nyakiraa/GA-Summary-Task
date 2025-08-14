@@ -6,3 +6,6 @@ Explore fields and make friends
 Empower each other to move forward 
 Achieving greater things with the faculty and students in the department 
 Freshmen: Reach out to seniors 
+
+- Kamustahan of our COMPUTER STUDENT students.
+- Introducing Year Level Representatives (Introduction of Officers)
